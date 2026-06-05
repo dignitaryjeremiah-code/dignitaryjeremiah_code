@@ -1,2 +1,4 @@
 # dignitaryjeremiah_code
-the first sierraleone streamer
+The first live streamer from Sierra Leone streaming on Kick and Twitch
+https://www.instagram.com/jeremiahsahrkomba?fbclid=IwZXh0bgNhZW0CMTAAYnJpZBExcUJuR01MMTMwYXZMd3NORnNydGMGYXBwX2lkEDIyMjAzOTE3ODgyMDA4OTIAAR6vu4w4KwbRiqEvDa8CC5lLVVvLwWcxC2ll7a3aCyqAc_ogsnWIbMPNd_ONSQ_aem_wTi3k-3d94i0riBmN7CADg
+https://www.youtube.com/@Jeremiahsahrkomba
